@@ -1,0 +1,1 @@
+# lab1-stor2.github.io
